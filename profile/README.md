@@ -1,1 +1,1 @@
-# RanduSoft
+# RanduSoft • GitHub
